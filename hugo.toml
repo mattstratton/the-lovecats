@@ -1,7 +1,7 @@
 # Site settings
-baseURL = "https://example.com"
+baseURL = "https://thelovecats.net"
 languageCode = "en-US"
-title = "Split - HTML Template Demo"
+title = "Matty & Stef's Wedding"
 theme = "hugo-split-theme"
 disableKinds = ["section", "taxonomy", "RSS", "sitemap"]
 disableHugoGeneratorInject = true
@@ -21,10 +21,10 @@ copyright = "&copy;2025 Matty and Stef"
 [params]
 
   # Metadata for search engines and social sharing
-  author = "Jenny Jones"
-  description = "Split is a centrally-divided layout for a professional online presence with a big image or video left with alongside content."
+  author = "Matty Stratton"
+  description = "Matty and Stef are getting married on July 26, 2025"
   shareImage = "images/social.jpg"
-  twitterHandle = "onepagelove"
+  twitterHandle = "mattstratton"
 
   # Whether you purchased the license from the author.
   licensed = false
