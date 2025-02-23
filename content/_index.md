@@ -26,14 +26,15 @@ Traveling from out of town? Here are some tips to help plan.
 ### Things To Do
 
 - Crosstown Classic (Cubs at White Sox) July 25 and July 27
-- Morton Arboretum
-- Brookfield Zoo
+- [Morton Arboretum](https://mortonarb.org/)
+- [Brookfield Zoo](https://www.brookfieldzoo.org/)
 
 ### Places To Eat
 
-- Bavarian Lodge (German)
-- Dan’s Pizza (takeout only)
-- Johnnie’s Beef
+- [The Bavarian Lodge](https://bavarian-lodge.com/) (German)
+- [Dan’s Pizza](https://www.danspizza.net/) (takeout only)
+- [Johnnie’s Beef](https://g.co/kgs/zZVx4qe) (Italian beef, not super close but Matty's favorite)
+- [Morningside Cafe](https://www.morningsidelisle.com/) (breakfast)
 
 ## FAQs
 
