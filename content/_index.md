@@ -44,10 +44,13 @@ We're having a casual backyard wedding. Dress comfortably and wear shoes that ar
 Yes! We love kids and would be thrilled to have them at our wedding.
 
 *Do you have a registry?*<br>
-We're having a casual backyard wedding. Dress comfortably and wear shoes that are good for walking on grass.
+No, we're old and have lots of stuff. But we might have a Riot Fest or tattoo fund, more details to come.
+
+*Where is the wedding?*<br>
+Once you [RSVP](/rsvp), you will receive the address.
 
 *Where should I park?*<br>
-Yes! We love kids and would be thrilled to have them at our wedding.
+We'll share this information when we figure it out, but basically you can park on the street by the house.
 
 *When does it start?*<br>
 We will be starting at 5PM!
@@ -56,10 +59,10 @@ We will be starting at 5PM!
 While Moxie and Cody are important members of our family, they will not be at the wedding. We will have a photo of them on display.
 
 *I’m staying in downtown Chicago. How can I get to your house?*<br>
-We're having a casual backyard wedding. Dress comfortably and wear shoes that are good for walking on grass.
+If you don't have a car, Uber or Lyft are your best bet. It's about a 45 minute drive from downtown. If you're taking public transportation, you can take the [BNSF Metra](https://ridertools.metrarail.com/maps-schedules/train-lines/BNSF) from Union Station to the Lisle station and then Uber or Lyft from there.
 
 *How do I RSVP?*<br>
-Yes! We love kids and would be thrilled to have them at our wedding.
+Please visit [this link](/rsvp) to RSVP.
 
 *How late does it go?*<br>
 No idea! But probably pretty late :)
