@@ -2,6 +2,9 @@
 title = "Matty & Stef's Wedding"
 tagline = "Backyard Wedding"
 +++
+Please join us in celebrating our love and the start of our greatest hit yet!
+
+We're on the edge of a beautiful thing, come join us in our backyard as we exchange vows followed by an evening of music and celebration!
 
 The wedding will be on Saturday, July 26, 2025 starting at 5 PM. Please don't forget to [RSVP](https://www.icloud.com/invites/0e1p9Su9-4w7n00J9n5jVZFfw). More details can be found under our [FAQs](#faqs). If you're coming from out of town, check out our [Out of Town Info](#out-of-town-info) for some tips on where to stay and what to do.
 
