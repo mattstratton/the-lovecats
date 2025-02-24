@@ -48,7 +48,7 @@ We're having a casual backyard wedding. Dress comfortably and wear shoes that ar
 Yes! We love kids and would be thrilled to have them at our wedding.
 
 *Do you have a registry?*<br>
-No, we're old and have lots of stuff. But we might have a Riot Fest or tattoo fund, more details to come.
+No, we're old and have lots of stuff. But we might have a [Riot Fest](https://riotfest.org/) or tattoo fund, more details to come.
 
 *Where is the wedding?*<br>
 Once you [RSVP](/rsvp), you will receive the address.
