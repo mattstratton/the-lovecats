@@ -12,9 +12,9 @@ The wedding will be on Saturday, July 26, 2025 starting at 5 PM. Please don't fo
 
 Please use this link: [RSVP](/rsvp)
 
-You do not need an AppleID to RSVP, but you will need to enter your email address. If you have any trouble, please [send us an email](mailto:matt.stratton@gmail.com) or contact Matty or Stef in whatever way you like. Once you enter your email address, we will approve you as a guest and you will be able to RSVP and get information like the address, etc (this is just to keep internet randos from RSVPing).
+You do not need an AppleID to RSVP, but you will need to enter your email address. If you have any trouble, please [send us an email](mailto:wedding@thelovecats.net) or contact Matty or Stef in whatever way you like. Once you enter your email address, we will approve you as a guest and you will be able to RSVP and get information like the address, etc (this is just to keep internet randos from RSVPing).
 
-If you have any dietary restrictions, please [send us an email](mailto:matt.stratton@gmail.com) to let us know.
+If you have any dietary restrictions, please [send us an email](mailto:wedding@thelovecats.net) to let us know.
 
 ## Friday night activities
 
