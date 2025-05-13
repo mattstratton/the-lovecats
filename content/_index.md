@@ -16,6 +16,10 @@ You do not need an AppleID to RSVP, but you will need to enter your email addres
 
 If you have any dietary restrictions, please [send us an email](mailto:matt.stratton@gmail.com) to let us know.
 
+## Friday night activities
+
+We are planning to have a casual get together on Friday night, July 25, 2025. Details are still being worked out, but one option will be to join us at the Fig Dish / Letters to Cleo show at Subterranean in Chicago. We will likely also be getting together at a bar in the area before the show. If you're interested in the show, get tickets [here](https://www.seetickets.us/event/letters-to-cleo/647014).
+
 ## Out of town info
 
 Traveling from out of town? Here are some tips to help plan.
