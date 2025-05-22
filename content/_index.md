@@ -55,7 +55,7 @@ Yes! We love kids and would be thrilled to have them at our wedding.
 No, we're old and have lots of stuff. But if you'd like to give a gift, we have a [Riot Fest](https://riotfest.org/) tickets or tattoo fund.
 Here are the links!
 - [Venmo](https://venmo.com/u/Matt-Stratton-4)
-- [Zelle](https://enroll.zellepay.com/qr-codes?data=eyJuYW1lIjoiTUFUVEhFVyIsImFjdGlvbiI6InBheW1lbnQiLCJ0b2tlbiI6IjMxMjM2MTc2MTEifQ==)
+- Zelle (312-361-7611)
 - PayPal (Email wedding@thelovecats.net and Stef will send you info)
 
 *Where is the wedding?*<br>
