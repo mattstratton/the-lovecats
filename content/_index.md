@@ -8,6 +8,11 @@ We're on the edge of a beautiful thing, come join us in our backyard as we excha
 
 The wedding will be on Saturday, July 26, 2025 starting at 5 PM. Please don't forget to [RSVP](https://www.icloud.com/invites/0e1p9Su9-4w7n00J9n5jVZFfw). More details can be found under our [FAQs](#faqs). If you're coming from out of town, check out our [Out of Town Info](#out-of-town-info) for some tips on where to stay and what to do.
 
+## Details
+
+- **When:** Saturday, July 26, 2025 at 5 PM
+- **Where:** Matty & Stef's backyard. [5826 Prince Court, Lisle, IL 60532](https://maps.app.goo.gl/GakLZEtxUhDoJBj59)
+
 ## RSVP
 
 Please use this link: [RSVP](/rsvp)
@@ -15,6 +20,12 @@ Please use this link: [RSVP](/rsvp)
 You do not need an AppleID to RSVP, but you will need to enter your email address. If you have any trouble, please [send us an email](mailto:wedding@thelovecats.net) or contact Matty or Stef in whatever way you like. Once you enter your email address, we will approve you as a guest and you will be able to RSVP and get information like the address, etc (this is just to keep internet randos from RSVPing).
 
 If you have any dietary restrictions, please [send us an email](mailto:wedding@thelovecats.net) to let us know.
+
+## Schedule
+
+- **5:00 PM** - Cocktail Hour
+- **6:00 PM** - Ceremony
+- **7:00 PM** - Dinner
 
 ## Friday night activities
 
@@ -46,7 +57,10 @@ Traveling from out of town? Here are some tips to help plan.
 ## FAQs
 
 *What should I wear?*<br>
-We're having a casual backyard wedding. Dress comfortably and wear shoes that are good for walking on grass.
+We're having a casual backyard wedding. Dress comfortably and wear shoes that are good for walking on grass. Consider casual cocktail attire, but we want you to be comfortable. If you want to wear a suit or a dress, go for it! If you want to wear shorts and a t-shirt, that's fine too. Just be comfortable and fun!
+
+*What if it rains?*<br>
+We have a tent reserved in case of rain, so the wedding will go on rain or shine! Bring an umbrella if it's raining though.
 
 *Are kids invited?*<br>
 Yes! We love kids and would be thrilled to have them at our wedding.
@@ -58,14 +72,11 @@ Here are the links!
 - Zelle (312-361-7611)
 - PayPal (Email wedding@thelovecats.net and Stef will send you info)
 
-*Where is the wedding?*<br>
-Once you [RSVP](/rsvp), you will receive the address.
-
 *Where should I park?*<br>
-We'll share this information when we figure it out, but basically you can park on the street by the house.
+There should be plenty of street parking available on Prince Court and the surrounding streets. Please be respectful of our neighbors and do not block driveways.
 
 *When does it start?*<br>
-We will be starting at 5PM!
+We will be starting at 5PM! Unless you're part of the Getting Ready Crew, please try to arrive as close to cocktail hour at 5 PM as possible.
 
 *Will the dogs be there?*<br>
 While Moxie and Cody are important members of our family, they will not be at the wedding. We will have a photo of them on display.
