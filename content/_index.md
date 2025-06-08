@@ -78,6 +78,9 @@ There should be plenty of street parking available on Prince Court and the surro
 *When does it start?*<br>
 We will be starting at 5PM! Unless you're part of the Getting Ready Crew, please try to arrive as close to cocktail hour at 5 PM as possible.
 
+*What about toasts at dinner?*<br>
+While we’re not doing any formal or scheduled toasts during dinner, if you feel moved to get up and share a memory or say a few words, we’d love that. Totally optional and nothing needs to be prepared, we just wanted to let you know in case you want to think about it ahead of time.
+
 *Will the dogs be there?*<br>
 While Moxie and Cody are important members of our family, they will not be at the wedding. We will have a photo of them on display.
 
