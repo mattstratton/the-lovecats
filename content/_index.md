@@ -82,7 +82,7 @@ We will be starting at 5PM! Unless you're part of the Getting Ready Crew, please
 While we’re not doing any formal or scheduled toasts during dinner, if you feel moved to get up and share a memory or say a few words, we’d love that. Totally optional and nothing needs to be prepared, we just wanted to let you know in case you want to think about it ahead of time.
 
 *Will the dogs be there?*<br>
-While Moxie and Cody are important members of our family, they will not be at the wedding. We will have a photo of them on display.
+While Moxie and Cody are important members of our family, they will not be at the wedding. However, our chickens will be.
 
 *I’m staying in downtown Chicago. How can I get to your house?*<br>
 If you don't have a car, Uber or Lyft are your best bet. It's about a 45 minute drive from downtown. If you're taking public transportation, you can take the [BNSF Metra](https://ridertools.metrarail.com/maps-schedules/train-lines/BNSF) from Union Station to the Lisle station and then Uber or Lyft from there.
